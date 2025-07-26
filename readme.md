@@ -1,4 +1,4 @@
-
+<img align="left" src="https://github.com/lumilovesyou/lumilovesyou/blob/main/assets/images/felisaraneae-circle.png">
 
 ### Hey!
 
